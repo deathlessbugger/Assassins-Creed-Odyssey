@@ -230,4 +230,4 @@ Assassin's Creed Odyssey is available as a full free version, including all feat
 Download Assassin's Creed Odyssey now and embark on your adventure in Ancient Greece!
 
 ---
-**Last updated:** 2026-10-08 21:42:55 UTC
+**Last updated:** 2026-10-09 01:38:01 UTC
